@@ -6,7 +6,7 @@
 <pre> IMPORTANT NOTE:🎯 <br />
  This repository is for my personal use only😉✌️
  If you wish to download this file, I recommend downloading it from the official repository.👔🎓 
- The link is available down belowd.👇</pre> 
+ The link is available down below.👇</pre> 
 
 <br />
 
